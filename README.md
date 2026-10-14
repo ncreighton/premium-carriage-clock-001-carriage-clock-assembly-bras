@@ -1,0 +1,2 @@
+# premium-carriage-clock-001-carriage-clock-assembly-bras
+Tired of vague clock kits that leave you guessing? This studio gives you every detail to craft a museum-quality carriage clock and brass case from scratch.  This isn't just an assembly guide—it's a complete craft studio that demystifies the entire process, from cutting and shaping brass to assembling the clock movement. You get professional-level t
